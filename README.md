@@ -8,4 +8,3 @@
 
 ![image](https://github.com/nhattruong05022003/Smart_Farm/assets/145974955/c5238ebf-3ef1-497a-8652-a8c556360c56)
 
-![image](https://github.com/nhattruong05022003/Smart_Farm/assets/145974955/4e7dd10c-012f-40e4-bf26-cdc3ba7d224d)
